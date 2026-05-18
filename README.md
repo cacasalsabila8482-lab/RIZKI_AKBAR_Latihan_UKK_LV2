@@ -1,1 +1,0 @@
-# RIZKI_AKBAR_Latihan_UKK_LV2
